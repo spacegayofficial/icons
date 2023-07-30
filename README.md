@@ -1,4 +1,4 @@
-Absolutely no credit is necessary, but a reblog on my tumblr post would be appreciated! Thanks! <3
+Absolutely no credit is necessary, but a reblog on my [tumblr post](https://butchmandalorian.tumblr.com/post/724308362185080832/download-ur-preferred-icons-here) would be appreciated! Thanks! <3
 
 Currently working on: Dio
 
