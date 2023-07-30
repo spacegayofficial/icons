@@ -1,4 +1,4 @@
-Absolutely no credit is necessary, but a reblog would be appreciated on my tumblr post! Thanks! <3
+Absolutely no credit is necessary, but a reblog on my tumblr post would be appreciated! Thanks! <3
 
 Currently working on: Dio
 
