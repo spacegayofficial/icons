@@ -2,7 +2,7 @@ Absolutely no credit is necessary, but a reblog on my [tumblr post](https://butc
 
 Currently working on: Ezra
 
-Existing icons: 2 flavors of Din, 4 flavors of Dieter, Dio
+Existing icons: 2 flavors of Din Djarin, 4 flavors of Dieter Bravo, Dio Morrissey
 
 Future icons: Frankie Morales, Javi Gutierrez, Javier Peña, Joel Miller, Marcus Moreno, Marcus Pike, Max Phillips, Maxwell Lord, Oberyn Martell, the thief, Pero Tovar, Veracruz, and Whiskey
 
